@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mevanlc
+- 👋 Hi, I’m @mevanlc - Most people call me Mike. You can call me Michael or M, too.
 - 👀 I’m interested in things
 - 🌱 I’m currently learning vegetables
 - 💞️ I’m looking to collaborate on love
