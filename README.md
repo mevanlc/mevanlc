@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mevanlc - Most people call me Mike.
+- 🧑 I like people.
+- 💡 I'm interested in things!
